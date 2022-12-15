@@ -1,0 +1,2 @@
+# assignment
+THIS IS 1ST- ASSIGNMENT FOR SMIT
